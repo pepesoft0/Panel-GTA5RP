@@ -1,7 +1,7 @@
 # Панель для фарма в игре на серверах GTA5RP
 
 ## Приобрести ключ 
-https://gta.pepesoft.web1337.net/
+https://one.pepesoft.store/
 
 ## Фишки данной программы
 ✅ Прокрут рулетки  
@@ -96,4 +96,4 @@ https://gta.pepesoft.web1337.net/
 ![18](https://github.com/user-attachments/assets/ac7c9748-747b-47e3-ad06-d836db5f2238)
 
 ## Приобрести ключ 
-https://gta.pepesoft.web1337.net/
+https://one.pepesoft.store/
